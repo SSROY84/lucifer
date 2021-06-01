@@ -1,3 +1,3 @@
 # lucifer
 
-Haven't thought about what to add here as well, will probably delete it soon!
+Haven't thought about what to add here, will probably delete it soon!
